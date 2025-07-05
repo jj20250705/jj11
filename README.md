@@ -12,6 +12,6 @@
 平台B注重高清视频，支持跨设备播放，提供高质量体验。平台C专为女优粉丝设计，定期更新，方便查找最新作品。平台D优化了移动端体验，确保随时随地都能流畅播放。
 平台E结合免费与高清付费内容，满足不同需求。这些平台通过多样化选择，提供了最佳观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/jj20250705/jj11 ）</span>
 
 
